@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on developing websites
 - 📫 You can reach me through my linked in - https://www.linkedin.com/in/ayush-kumar-b75713286/  and my email - ayush1031kumar@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: More close you are, bigger it seems. Just think for moon's and star's position and their size.
 
 <!---
 a-Ayush-kumar/a-Ayush-kumar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
